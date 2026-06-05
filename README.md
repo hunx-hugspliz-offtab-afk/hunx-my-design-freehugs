@@ -11,7 +11,7 @@
                          ✦🕊️- I LIKE POPEE IN POPEE THE PERFORMER / KURUWAYA HANABISHI IN CHINCHIKURIN  -🕊️✦
                  ✦ IF I SEE YOU COSPLAY POPEE THE PERFORMER OR CHINCHIKURIN  , I WILL COME AND KISS YOU RIGHT AWAY ✦   
                        
-                         🕊️-  ✦ HEAVY DNI N GETOUT PROSHIP ✦ I HATE TOXIC FANS * TOXIC YUMESHIPERS TOO <3 ✦ -🕊️-
+                         🕊️-  ✦ HEAVY DNI N GETOUT -> PROSHIPPERS ✦ I HATE TOXIC FANS * TOXIC YUMESHIPERS TOO <3 ✦ -🕊️-
 
              
                                    🕊️- ✦ MULTIFANDOMS - MULTISHIPS ✦  -🕊️
