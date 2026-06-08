@@ -10,12 +10,14 @@
                          ✦🕊️- I LOVE KEDAMONO IN POPEE THE PERFORMER / OOKAMI KEITA IN CHINCHIKURIN  -🕊️✦ 
                          ✦🕊️- I LIKE POPEE IN POPEE THE PERFORMER / KURUWAYA HANABISHI IN CHINCHIKURIN  -🕊️✦
                  ✦ IF I SEE YOU COSPLAY POPEE THE PERFORMER OR CHINCHIKURIN  , I WILL COME AND KISS YOU RIGHT AWAY ✦   
-                       
-                         🕊️-  ✦ HEAVY DNI N GETOUT -> PROSHIPPERS ✦ I HATE TOXIC FANS * TOXIC YUMESHIPERS TOO <3 ✦ -🕊️-
 
-             
-                                   🕊️- ✦ MULTIFANDOMS - MULTISHIPS ✦  -🕊️
-              
+                 
+                         
+                         🕊️-  ✦ HEAVY DNI -> PROSHIP * DARKSHIP  * 
+                           🕊️-  ✦ HATE ONLY TOXIC YUMESHIPERS (I don't hate all yumeshippers) ✦-🕊️                                                                                                          
+                     
+                                   🕊️- ✦ MULTIFANDOMS * MULTISHIPS ✦  -🕊️
+                                                     🕊️- ✦
                               🕊️-   ✦ Respect my ship, I'll respect yours!! ^^ ✦ 
        
                
